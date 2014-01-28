@@ -11,13 +11,13 @@
 
 ``` Footer for Document ```
 
-Elections & Human Rights Video Documentation V 1.0
+Elections & Human Rights Video Documentation V 1.1
 
 witness.org @witnessorg facebook.com/witness 
 ```[IMAGE witness logo.ai]```
 
 ``` End Footer for Document ```
-
+BLHAHHALHFSDIGHS:GH:SOIGHS:LBHS:OEIHG
 ## Documenting demonstrations, political rallies and polling queues
 ### Be Prepared
 Know your rights before you turn on the camera. Always assess risks to
