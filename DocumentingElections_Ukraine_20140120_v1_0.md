@@ -26,6 +26,8 @@ yourself, interviewees and communities before you film. Develop a
 security plan to protect your safety as well as the safety of those you
 are filming.
 
+## Detailed info about Ukraine HERE
+
 ```[IMAGE Witness Demonstration.ai]```
 
 ### Verification
