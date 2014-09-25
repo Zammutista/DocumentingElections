@@ -1,4 +1,4 @@
-VOTE EL SALVADOR!!
+
 ```Header for Page 01```
 
 ```[IMAGE witness logo filename.extension]```
